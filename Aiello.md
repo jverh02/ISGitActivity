@@ -1,2 +1,2 @@
-Stefani Aiello
-hobbies: reading, video games
+**Stefani Aiello**
+hobbies: reading, video games, tv
