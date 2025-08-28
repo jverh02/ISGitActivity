@@ -1,2 +1,2 @@
 Stefani Aiello
-hobbies: reading, video games
+hobbies: reading, video games, updating
